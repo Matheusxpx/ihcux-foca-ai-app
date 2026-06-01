@@ -1,2 +1,7 @@
 # ihcux-foca-ai-app
 Matheus lucas de souza Pereira 326142119 
+
+link do miro https://miro.com/app/board/uXjVHL3rPWM=/?share_link_id=52707788110
+
+
+https://miro.com/welcomeonboard/N1hrRGR6TFV4cU5FYnFNYzRYaytMOVk4WEJLK0ZDWmZvdXR5RVppQlpsREV0VTlaVEc4YWxFOG83K2MvYm0yakRKTGIrZDh6bW5JRGxvUk1pcHhwdTJ6S2dSMlB4cHZuaUpua095U2lnZHRiSnNpSUdMWmZPYmFJOXd5YUxCRU5hWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=784745446
